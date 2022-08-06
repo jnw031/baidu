@@ -1,1 +1,1 @@
-# goodbye-sad
+# [白度一下，你就知道](jnw031.github.io/baidu)
