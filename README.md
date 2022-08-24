@@ -1,1 +1,1 @@
-## [网址](https://jnw031.github.io/baidu)
+## [网址](https://qaidu.ga)
