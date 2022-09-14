@@ -1,1 +1,1 @@
-## [网址](https://qaidu.cf)
+## [网址](https://baidusou.cf)
